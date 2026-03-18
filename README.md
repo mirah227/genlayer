@@ -34,6 +34,10 @@ by fragile, unseen, sacred lines.
 
 And when the world demands your thunder,
 and asks you what your strength may be, n
-remember all the quiet things
+remember all the quiet things  
 that taught your soul to breathe.
 water water water 
+Not just chains of silent numbers,
+not just ledgers cold and tight
+something stirs beneath the surface,
+code that learns to see the light.

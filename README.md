@@ -33,6 +33,7 @@ for in the stillness, you are forged
 by fragile, unseen, sacred lines.
 
 And when the world demands your thunder,
-and asks you what your strength may be,
+and asks you what your strength may be, n
 remember all the quiet things
 that taught your soul to breathe.
+water water water 

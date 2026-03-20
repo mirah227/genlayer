@@ -53,4 +53,5 @@ missie missie missie
 no drums.
 no loud arrival.
 just a line of code
-that paused…
+thathey said chains don’t question,
+they execute.t paused…

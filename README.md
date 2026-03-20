@@ -47,3 +47,5 @@ Still, forward moves the restless current,
 So watch the rise, the quiet shift,
 So watch the rise, the quiet shift,
 No longer blind execution,
+A look that lasts a second longer,
+a name you almost dared to call

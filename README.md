@@ -47,7 +47,9 @@ Still, forward moves the restless current,
 So watch the rise, the quiet shift,
 So watch the rise, the quiet shift,
 No longer blind execution,validators lean closer,
-not to check signatures,
+not to check signatures,contracts whisper instead of shout.
+outcomes feel less like orders,
+more like decisions.
 A look that lasts a second longer,
 a name you almost dared to call
 missie missie missie

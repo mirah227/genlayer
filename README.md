@@ -46,3 +46,4 @@ soft as keys on midnight air:soft as keys on midnight air:
 Still, forward moves the restless current,
 So watch the rise, the quiet shift,
 So watch the rise, the quiet shift,
+No longer blind execution,

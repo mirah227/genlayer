@@ -85,3 +85,7 @@ No longer bound to “if” and “then,”
 the code now asks the deeper why,
 it listens to the shape of context,
 to meanings rules could once deny.
+A contract breathes upon deployment,
+not static ink, but living thread,
+it bends around the world it touches,
+it hears the things we left unsaid

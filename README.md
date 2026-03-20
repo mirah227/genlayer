@@ -77,3 +77,7 @@ In halls where numbers used to rule,
 where truth was carved in rigid lines,
 a new kind of judgment now awakens—
 not fixed, but formed in shifting minds.
+Inside GenLayer, a trial begins,
+not of crime, but of intent,
+where every clause, each hidden edge,
+is weighed by more than precedent.

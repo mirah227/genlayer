@@ -71,3 +71,5 @@ somewhere, a transaction hesitates.
 not broken—
 not faster chains,
 not cheaper gas—
+but systems
+that finally admit

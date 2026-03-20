@@ -43,3 +43,4 @@ something stirs beneath the surface,
 code that learns to see the light.
 Yet in this power lies a question,
 soft as keys on midnight air:soft as keys on midnight air:
+Still, forward moves the restless current,

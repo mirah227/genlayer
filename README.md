@@ -41,3 +41,4 @@ Not just chains of silent numbers,
 not just ledgers cold and tight
 something stirs beneath the surface,
 code that learns to see the light.
+Yet in this power lies a question,

@@ -73,3 +73,7 @@ not faster chains,
 not cheaper gas—
 but systems
 that finally admit
+In halls where numbers used to rule,
+where truth was carved in rigid lines,
+a new kind of judgment now awakens—
+not fixed, but formed in shifting minds.

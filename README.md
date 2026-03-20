@@ -81,3 +81,7 @@ Inside GenLayer, a trial begins,
 not of crime, but of intent,
 where every clause, each hidden edge,
 is weighed by more than precedent.
+No longer bound to “if” and “then,”
+the code now asks the deeper why,
+it listens to the shape of context,
+to meanings rules could once deny.

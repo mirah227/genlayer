@@ -56,7 +56,8 @@ missie missie missie
 no drums.
 no loud arrival.
 just a line of codewhat does this mean?
-
+no forks screaming in chaos,
+no rigid gods of code—
 logic, once straight as a blade,
 now bends—
 

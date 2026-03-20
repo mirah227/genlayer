@@ -50,3 +50,5 @@ No longer blind execution,
 A look that lasts a second longer,
 a name you almost dared to call
 missie missie missie
+no drums.
+no loud arrival.

@@ -46,7 +46,8 @@ soft as keys on midnight air:soft as keys on midnight air:
 Still, forward moves the restless current,
 So watch the rise, the quiet shift,
 So watch the rise, the quiet shift,
-No longer blind execution,
+No longer blind execution,validators lean closer,
+not to check signatures,
 A look that lasts a second longer,
 a name you almost dared to call
 missie missie missie

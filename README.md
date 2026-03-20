@@ -44,3 +44,5 @@ code that learns to see the light.
 Yet in this power lies a question,
 soft as keys on midnight air:soft as keys on midnight air:
 Still, forward moves the restless current,
+So watch the rise, the quiet shift,
+So watch the rise, the quiet shift,

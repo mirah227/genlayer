@@ -53,6 +53,10 @@ a name you almost dared to call
 missie missie missie
 no drums.
 no loud arrival.
-just a line of code
+just a line of codewhat does this mean?
+
+logic, once straight as a blade,
+now bends—
+
 thathey said chains don’t question,
 they execute.t paused…

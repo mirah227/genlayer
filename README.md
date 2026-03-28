@@ -96,3 +96,7 @@ Once, we built with certainty—
 each block a verdict, sharp and clean,
 a world where every outcome lived
 exactly where it had been seen.
+No questions asked. No second glance.
+Just input, output—tight, confined.
+A universe of perfect rules…
+but never room to change one’s mind.

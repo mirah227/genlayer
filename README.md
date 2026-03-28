@@ -26,7 +26,10 @@ Not every war is fought with fire,
 not every loss is meant to show,
 some battles bloom in silent rooms
 where only you will ever know.
-
+Still, forward leans this strange invention,
+this bridge between the cold and fair—
+a system built not just for answers,
+but for the weight of choosing there.
 So do not curse the quiet moments,
 or wish for louder, brighter signs—
 for in the stillness, you are forged

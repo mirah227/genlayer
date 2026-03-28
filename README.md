@@ -92,3 +92,7 @@ A contract breathes upon deployment,
 not static ink, but living thread,
 it bends around the world it touches,
 it hears the things we left unsaid
+Once, we built with certainty—
+each block a verdict, sharp and clean,
+a world where every outcome lived
+exactly where it had been seen.

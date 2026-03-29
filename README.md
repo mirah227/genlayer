@@ -107,3 +107,7 @@ It lingers in rooms after laughter has left,
 sits gently on chairs still warm with memory,
 and watches the dust dance in narrow sunlight
 like time trying to explain itself.
+You may not notice it at first—
+life is loud, after all.
+Notifications, conversations, expectations,
+the constant hum of becoming something.

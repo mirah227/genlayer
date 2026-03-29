@@ -149,3 +149,7 @@ not in noise,
 not in distraction,
 but in the brave act
 of sitting with yourself
+They stretch into years,
+into habits,
+into the way you hesitate
+right before choosing yourself.

@@ -129,3 +129,9 @@ until it fills the entire room of your being.
 Because sometimes,
 the loudest truths in your life
 will never shout.
+Because silence is also where truth lives
+before it finds its voice.
+It is where ideas are born,
+fragile and unsure,
+like a flame learning how to exist
+without wind tearing it apart.

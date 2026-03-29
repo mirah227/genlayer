@@ -111,7 +111,13 @@ You may not notice it at first—
 life is loud, after all.
 Notifications, conversations, expectations,
 the constant hum of becoming something.Soft at first,
-like morning light peeking through curtains.
+like morning light peeking through curtains.But if you stay
+if you truly stay
+
+you will find something unexpected
+waiting beneath the weight of it all.
+
+Clarity.
 Then stronger,
 until it fills the entire room of your being.
 Because sometimes,

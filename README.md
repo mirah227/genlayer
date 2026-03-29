@@ -111,3 +111,6 @@ You may not notice it at first—
 life is loud, after all.
 Notifications, conversations, expectations,
 the constant hum of becoming something.
+Because sometimes,
+the loudest truths in your life
+will never shout.

@@ -110,7 +110,10 @@ like time trying to explain itself.
 You may not notice it at first—
 life is loud, after all.
 Notifications, conversations, expectations,
-the constant hum of becoming something.
+the constant hum of becoming something.Soft at first,
+like morning light peeking through curtains.
+Then stronger,
+until it fills the entire room of your being.
 Because sometimes,
 the loudest truths in your life
 will never shout.

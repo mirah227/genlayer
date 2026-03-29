@@ -103,3 +103,7 @@ but never room to change one’s mind.
 There is a silence that lives between seconds,
 not empty—
 but full of things we forgot to say.
+It lingers in rooms after laughter has left,
+sits gently on chairs still warm with memory,
+and watches the dust dance in narrow sunlight
+like time trying to explain itself.

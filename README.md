@@ -144,3 +144,8 @@ And still—
 there is beauty in them.
 
 Yes, beauty.
+It is where healing begins—
+not in noise,
+not in distraction,
+but in the brave act
+of sitting with yourself

@@ -153,3 +153,10 @@ They stretch into years,
 into habits,
 into the way you hesitate
 right before choosing yourself.
+They build homes in your chest,
+stack themselves like unread letters
+in the corners of your mind.
+They whisper at night
+when the world finally lets you hear yourself think.
+
+Do you hear them?

@@ -135,3 +135,12 @@ It is where ideas are born,
 fragile and unsure,
 like a flame learning how to exist
 without wind tearing it apart.
+They stretch into years,
+into habits,
+into the way you hesitate
+right before choosing yourself.
+
+And still—
+there is beauty in them.
+
+Yes, beauty.

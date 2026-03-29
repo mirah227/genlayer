@@ -116,7 +116,13 @@ if you truly stay
 
 you will find something unexpected
 waiting beneath the weight of it all.
+It will show you the cracks—
+the ones you painted over
+with productivity and jokes.
+It will remind you of who you were
+before the world told you who to be.
 
+But if you stay
 Clarity.
 Then stronger,
 until it fills the entire room of your being.

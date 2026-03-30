@@ -193,3 +193,4 @@ To sing, simply because you can.
 I sat on the edge of my bed,
 negotiating with motivation,
 like two strangers unsure who should speak first.
+The floor felt cold,

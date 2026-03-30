@@ -205,3 +205,4 @@ I smiled—half truth, half survival.
 Some days, that’s enough.
 The sun began its slow confession,
 spilling light across rooftops and doubts alike.
+It didn’t ask for attention,

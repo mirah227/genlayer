@@ -181,3 +181,4 @@ whispering stories in a language I almost understood.
 I opened the window
 not for air,
 but for perspective.
+Sometimes, you need the world

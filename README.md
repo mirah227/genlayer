@@ -194,3 +194,4 @@ I sat on the edge of my bed,
 negotiating with motivation,
 like two strangers unsure who should speak first.
 The floor felt cold,
+a reminder that comfort is often temporary.

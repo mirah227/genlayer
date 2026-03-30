@@ -198,3 +198,4 @@ a reminder that comfort is often temporary.Still, I placed my feet down anyway.
 Growth rarely asks for permission.
 The mirror waited patiently,
 holding a version of me I wasn’t ready to meet.
+I approached slowly,

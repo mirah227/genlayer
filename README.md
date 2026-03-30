@@ -178,3 +178,4 @@ The dreamer or the realist.
 Outside, the wind stretched its limbs,
 brushing past trees like an old friend,
 whispering stories in a language I almost understood.
+I opened the window

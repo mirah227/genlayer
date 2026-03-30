@@ -212,3 +212,4 @@ to exist so boldly
 without apology.
 Breakfast was quiet
 the kind of quiet that listens back.
+Each bite felt like a small agreement

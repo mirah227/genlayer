@@ -210,3 +210,4 @@ yet everything turned toward it.
 I wondered what it must feel like
 to exist so boldly
 without apology.
+Breakfast was quiet

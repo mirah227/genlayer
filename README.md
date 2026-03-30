@@ -173,3 +173,4 @@ as if time itself had doubts about me.
 I didn’t answer.
 Not because I couldn’t,
 but because I wasn’t sure which version of me
+deserved to speak first.

@@ -189,3 +189,4 @@ like memory itself needed practice.
 I envied that certainty
 to wake up knowing your purpose
 without questioning your worth.
+To sing, simply because you can.

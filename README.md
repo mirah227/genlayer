@@ -211,3 +211,4 @@ I wondered what it must feel like
 to exist so boldly
 without apology.
 Breakfast was quiet
+the kind of quiet that listens back.

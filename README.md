@@ -169,3 +169,4 @@ No expectations, no borrowed voice just the quiet pulse of being alive.
 And it felt… unfamiliar.
 The ceiling stared back like an unanswered question,
 asking what I planned to do with another day,
+as if time itself had doubts about me.

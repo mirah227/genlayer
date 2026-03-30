@@ -217,3 +217,4 @@ to keep going.
 Sometimes, that’s the only promise we can keep.
 The road outside called my name,
 Like a thought you can’t quite ignore.
+unsure where it would lead,

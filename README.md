@@ -203,3 +203,4 @@ as though sudden movements might shatter it.
 “Who are you today?” it seemed to ask.
 I smiled—half truth, half survival.
 Some days, that’s enough.
+The sun began its slow confession,

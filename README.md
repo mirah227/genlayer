@@ -183,3 +183,4 @@ not for air,
 but for perspective.
 Sometimes, you need the world
 to remind you that you are small,
+and that small is not the same as insignificant.

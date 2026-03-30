@@ -188,3 +188,4 @@ Somewhere, a bird rehearsed its morning song,repeating notes like it was afraid 
 like memory itself needed practice.
 I envied that certainty
 to wake up knowing your purpose
+without questioning your worth.

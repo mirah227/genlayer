@@ -167,3 +167,4 @@ There, in that fragile hour between breaths,
 I met myself without disguise.
 No expectations, no borrowed voice just the quiet pulse of being alive.
 And it felt… unfamiliar.
+The ceiling stared back like an unanswered question,

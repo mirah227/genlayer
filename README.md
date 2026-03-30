@@ -182,3 +182,4 @@ I opened the window
 not for air,
 but for perspective.
 Sometimes, you need the world
+to remind you that you are small,

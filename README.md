@@ -191,3 +191,4 @@ to wake up knowing your purpose
 without questioning your worth.
 To sing, simply because you can.
 I sat on the edge of my bed,
+negotiating with motivation,

@@ -185,3 +185,4 @@ Sometimes, you need the world
 to remind you that you are small,
 and that small is not the same as insignificant.
 Somewhere, a bird rehearsed its morning song,repeating notes like it was afraid to forget,
+like memory itself needed practice.

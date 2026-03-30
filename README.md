@@ -201,3 +201,4 @@ holding a version of me I wasn’t ready to meet.
 I approached slowly,
 as though sudden movements might shatter it.
 “Who are you today?” it seemed to ask.
+I smiled—half truth, half survival.

@@ -208,3 +208,4 @@ spilling light across rooftops and doubts alike.
 It didn’t ask for attention,
 yet everything turned toward it.
 I wondered what it must feel like
+to exist so boldly

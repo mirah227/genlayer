@@ -165,3 +165,4 @@ when darkness still held the sky like a secret,
 and the world had not yet decided to be loud.
 There, in that fragile hour between breaths,
 I met myself without disguise.
+No expectations, no borrowed voices,

@@ -170,3 +170,4 @@ And it felt… unfamiliar.
 The ceiling stared back like an unanswered question,
 asking what I planned to do with another day,
 as if time itself had doubts about me.
+I didn’t answer.
